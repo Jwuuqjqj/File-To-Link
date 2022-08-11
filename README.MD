@@ -17,7 +17,8 @@
   
 ## About This Bot
 
-<b><a href="https://www.github.com/GENIUNEBOTS" title="Dollow">Follow Me For Updates</a></b>
+<b><a href="https://www.github.com/Jwuuqjqj
+" title="Dollow">Follow Me For Updates</a></b>
 
 ## Up to 4GB files Supported ♥️
 
